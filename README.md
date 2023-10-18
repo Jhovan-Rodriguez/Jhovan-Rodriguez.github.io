@@ -1,1 +1,0 @@
-# Jhovan-Rodriguez.github.io
